@@ -1,1 +1,1 @@
-# rida-khouyali-
+content://hsa.free.files.compressor.unarchiver.provider/external_storage/HSA_ZIP/extracted/RIDA_NFC_UN_SOLO_ARCHIVO/index.html# rida-khouyali-
